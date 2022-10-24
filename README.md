@@ -1,0 +1,1 @@
+# oysha.uz
